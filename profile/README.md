@@ -1,1 +1,1 @@
-![sikka-horizontal-logo-en copy 3](https://user-images.githubusercontent.com/46135573/149679036-d4e3d474-68c8-4ae7-b1bb-d184256feaaa.png)
+![sikka-vert](https://user-images.githubusercontent.com/46135573/149679784-2cba9e1e-9265-45ca-b25b-d99d47909006.png)
